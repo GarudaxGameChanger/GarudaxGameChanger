@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GarudaxGameChanger
-- 😄 Pronouns: He >> (Gender - Male)
+- 😄 Pronouns: He >> (Sex - Male)
 - 👀 I’m interested in Ethical Hacking
 - 🌱 I’m currently learning Java Language
 - 📫 Reach me through >>>> Acnex | @Garuda911
